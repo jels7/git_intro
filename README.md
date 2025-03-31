@@ -1,2 +1,1 @@
 Anjelica Cucchiara
-20
